@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **krupansusorathiya@gmail.com**
 
-- 📄 Currently i am study**
+- 📄 Currently i am study
 
 - ⚡ Fun fact **I M Funy**
 
